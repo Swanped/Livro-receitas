@@ -1,4 +1,4 @@
-# Caldo Verde
+# Caldo Verde 🥔
 
 ### Ingredientes
 
